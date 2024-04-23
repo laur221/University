@@ -1,1 +1,1 @@
-# In this folder you found the history of University "Alescu Russo"
+# In this folder you found the history of University "Alecu Russo"
